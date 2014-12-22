@@ -33,9 +33,217 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A briefe and pleasaunt treatise, intituled, Naturall and artificiall conclusions: written first by s
+
+1. The Preface to the Reader.
+
 #####Body#####
-A briefe and pleasaunt treatise, intituled, Naturall and artificiall conclusions: written first by s
+
+1. The propertie of the Adamant Stone.
+
+1. The secret properties of the Egge.
+
+1. ¶ A proper conclusion of an Hasellsticke.
+
+1. ¶ A proper practise to make a Capon to bryng vp yong Chickens.
+
+1. ¶ To make any foule of what condition the same bee, to haue feathers all white.
+
+1. ¶ To make a Candle burne in the water.
+
+1. ¶ To make a woman that she shall not eate of the meates set vpon the Table.
+
+1. ¶ A proper secret of the Philosophers, to make a Stone to burne without fire.
+
+1. ¶ To make one to see fearfull sightes in his sleepe.
+
+1. How to tourne water into wine, a proper secret.
+
+1. To make a light or Candell to endure burnyng without goyng out by any winde so long as the substance endureth.
+
+1. How to make qu•rters of wood i• hang so fast together, that thei cannot be shaken a funder without breaking.
+
+1. How to make a colour like to gold, in vnderstandyng this secret.
+
+1. To make Siluer like any mettall, which• shall so continue a long tyme.
+
+1. How to sticke an Iron or Steele Bodkin into the hed of either Cocke Henne, or Chicken.
+
+1. To make a Candle that will not goe out, vntill the whole substaunce be wasted.
+
+1. How to make Iron soft, a proper secret.
+
+1. To make a Sworde, Dagger, or Knife to cut Iron so easely as Leade.
+
+1. How to keepe weapons cleane and faire for a long tyme.
+
+1. How to make Steele so soft as past, a proper secret.
+
+1. ¶ How to make Hens laye Egges all the winter through.
+
+1. ¶ How to make thy Chamber appeare full of Snakes and Adders.
+
+1. ¶ How to make letters appeare of the colour of Golde, Copper, or Siluer.
+
+1. ¶ How to make any peece of Iron to appeare like golde.
+
+1. ¶ How to haue freshe Roses at all tymes of the yeare, sundrie waies taught.
+
+1. ¶ How to make Beanes and other seedes growe vp in foure houres.
+
+1. ¶ To make a Candle of Ise to burne like vnto an other Candle.
+
+1. ¶ To make fleshe to seeme to crall full of wormes.
+
+1. ¶ How to make a light in the night tyme, that all thinges round about thy hall or parlour shall appeare bothe blacke and greene.
+
+1. ¶ How to make Rootes to haue what proper forme you will on them.
+
+1. ¶ How to breake a stone with the Fist, of the thicknesse of ones hand.
+
+1. ¶ To make an hearb to growe whiche shall haue many sauors and tastes.
+
+1. ¶ How to make sundrie deuises or Armes or suche like, in a Rose, Carnation, or Flowers de luse, or Lilly.
+
+1. ¶ To write what you list on a Seel• Dagger or Knife.
+
+1. ¶ How to breake a newe and big Rope with the handes onely.
+
+1. ¶ How to make white Flowers like as the Lilly, white Rose and suche like to be red.
+
+1. ¶ How to make a hollow Ring to daunce by it self, a proper secrete.
+
+1. ¶To make Glewe to holde together so hard as a stone, a proper secret.
+
+1. ¶To make an Apple moue on the Table, a proper secrete.
+
+1. ¶ To make Roses and other flowers that be red, to become white.
+
+1. ¶ How to write letters on the Egshell, that the same letters maie appeare within on the Egge.
+
+1. How to make a Bottle or a narrowe mouth pot full of water or milke, not to spill or shed forthe.
+
+1. How to kill Fleas diuers waies.
+
+1. ¶How to make a pot of Glasse not to sinke in the water, a proper secrete.
+
+1. How to make a thin Glewe very profitable, a proper secrete.
+
+1. How to draw a Ring of, beyng very hard thrust on, and the finger swelled.
+
+1. To make fruites, as Apples, Peares Quinces, and suche like, to haue what proper forme you will on them.
+
+1. How to cut a Glasse, a proper secrete.
+
+1. How to soften Christall, to imprint what you list therein, a proper secrete.
+
+1. How to walke on the water, a proper secrete.
+
+1. ¶ To make a Candle to burne, a proper secrete.
+
+1. ¶ How to drawe many Candles the one after the other, beyng la•ed a foote distaunce or more asunder.
+
+1. ¶ How to cut an Apple into many peeces, without harmyng of the skinne or paryng.
+
+1. How to make a Cup of Glosse beyng set in the fire not to burne.
+
+1. How to m•ke a Candle to be maruailed at a proper secrete.
+
+1. ¶ How to make quick siluer in a ma•er so hard as siluer.
+
+1. How to see many and diuers straunge sightes in an Vrinall.
+
+1. How to catch Foules without a Net.
+
+1. How to make a loafe of bread newe set vpon the Table to leape of.
+
+1. How to make an Egge flye about, amerry conclusion.
+
+1. ¶ How to make Artificiall fire diuers waies, and that maruailous.
+
+1. ¶ How to knowe a naturall precious stone from a counterfaite.
+
+1. ¶ How to make a man appeare on a flame burnyng without any harme.
+
+1. ¶ How to make the Chamber as light by night as by daie.
+
+1. How to make two Dogges fight together, a proper secrete.
+
+1. How to make a Bitche that she shall not desire to be couered with any Dog.
+
+1. To make a blowen Bladder to daunce and skip from place to place.
+
+1. How to cast for the any worme or Snake entered within the bodie.
+
+1. How to make a Hen to runne awaie with greate feare.
+
+1. How to finde a persone drouned, that hath been sought for.
+
+1. How to deale with Iron many waies right profitable.
+
+1. To light a Candle at the mouthe of an Image painted on a wall.
+
+1. To take Fishe by night.
+
+1. To make that no Dog barke at you.
+
+1. To make birdes come to your Culuerhouse.
+
+1. To put an Apple in a Violl.
+
+1. To pu• an Egge in a Violl.
+
+1. To make folke seem blacke.
+
+1. To proue if a maiden bee cleane.
+
+1. ¶ To knowe if a sicke person• shall dye or not.
+
+1. To make salt water freshe.
+
+1. To kindle Fier at the Sunne.
+
+1. To see by night as by daie.
+
+1. To make fleshe cleane in the potte.
+
+1. To take Birdes.
+
+1. To make Silke Wormes.
+
+1. To take awaie haires.
+
+1. To fat Hennes or Capons.
+
+1. That one shall not be dronke.
+
+1. To make a good batte for Fishe at all seasons of the yere.
+
+1. ¶ To make an Egge goe vp to the Spere ends.
+
+1. To make fishe or fleshe seeme rawe.
+
+1. To make Potage to runne out of the pot.
+
+1. To kill Hens or Ducks.
+
+1. To make Coales to burne a great while.
+
+1. ¶ That a man shall not be• weary of goyng.
+
+1. Ad capiendum Pisces.
+
+1. To make Yearne and linnen. Cloth white.
+
+1. To make that a Horse maie not goe through a streate.
+
+1. To knowe if a Woman be with a man child or not.
+
+1. To ease thy Feete for goyng.
+
+1. To haue faire white teeth.
+
+1. To take Fleas.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
